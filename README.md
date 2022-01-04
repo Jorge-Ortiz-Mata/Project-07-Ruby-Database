@@ -16,7 +16,8 @@
         - ortiz.mata.jorge@gmail.com
         - +52 (444) 576 3034.
         
-    Have a wonderful day! :smiley:
-    Greetings :love_you_gesture:
+    
+ Have a wonderful day! :smiley:
+ Greetings :love_you_gesture:
         
-  ## Image. 
+ ## Image. 
