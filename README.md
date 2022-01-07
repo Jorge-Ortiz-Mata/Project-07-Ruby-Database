@@ -1,4 +1,4 @@
-#   PRACTICE 01. DATABASE.  
+#   PRACTICE 07. DATABASE.  
 
 ## Author:
 - Jorge Ortiz Mata.
